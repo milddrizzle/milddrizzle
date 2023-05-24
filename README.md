@@ -1,5 +1,5 @@
 <h1 align="center">
-  Hi there 👋
+  Let's enjoy drizzle☂️🌧️
 </h1>
 
 Well, well, well, it looks like we've got a mild drizzle fan in this Github! I'm Ramos Lee, but you can call me your resident rain guru. While some people are all about that sunshine and blue skies, you know that a little bit of precipitation is what really gets you going. 
