@@ -6,4 +6,4 @@ Well, well, well, it looks like we've got a mild drizzle fan in this Github! I'm
 
 ![Example Image](rainy-season.png)
 
-That soothing sound of raindrops tapping against the window, the way everything smells so fresh and clean after a good soaking, and let's not forget the perfect excuse to snuggle up with a cozy blanket and binge-watch your favorite shows. And hey, if you're lucky, you might even spot a 🌈 or two! So if you're ready to ditch the sunglasses and carry ☂️, let's get meeting on Skype and celebrate the joys of mild drizzle together!
+That soothing sound of raindrops tapping against the window, the way everything smells so fresh and clean after a good soaking, and let's not forget the perfect excuse to snuggle up with a cozy blanket and binge-watch your favorite shows. And hey, if you're lucky, you might even spot a 🌈 or two! So if you're ready to ditch the sunglasses and carry ☂️, let's get meeting on Skype (live:.cid.af0ed31f2d86473c) and celebrate the joys of mild drizzle together!
